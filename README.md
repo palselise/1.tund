@@ -1,1 +1,1 @@
-Tere kuidas laheb!!!
+Yo mis toimub!
